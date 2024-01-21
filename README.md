@@ -1,1 +1,0 @@
-# larenzo-studio
